@@ -8,4 +8,4 @@
 
 \> [dm me on X](https://x.com/aditya7_exe)
 
-<img src="https://count.getloli.com/@:ad1tya-io?name=%3Aad1tya-io&theme=rule34&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt=":ad1tya-io" /> 
+<img src="https://count.getloli.com/@:ad1tya-io" alt=":ad1tya-io" /> 
