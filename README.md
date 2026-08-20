@@ -6,6 +6,6 @@
 
 \> Currently learning about automations and how flexible AI models work.
 
-\> [dm me on X](https://x.com/aditya7_exe)
+\> [dm me on X](https://x.com/ad1tya_io)
 
 <img src="https://count.getloli.com/@:ad1tya-io" alt=":ad1tya-io" /> 
